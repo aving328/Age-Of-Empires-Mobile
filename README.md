@@ -238,4 +238,4 @@ Age of Empires Mobile is offered as a full free version, providing all features 
 Experience the thrill of conquering civilizations and expanding your empire. Download Age of Empires Mobile free today!
 
 ---
-**Last updated:** 2026-10-03 22:31:40 UTC
+**Last updated:** 2026-10-04 02:13:53 UTC
